@@ -14,7 +14,7 @@ I am always looking for new ways to learn and grow, and I am excited to connect 
 
 **My personal project:**
 
-[thecryptoshepherd.xyz] OFF
+OFF [thecryptoshepherd.xyz] / 
 [promptagouverner.fr]
 
 **Feel free to reach out to me if you have any questions or just want to chat!**
